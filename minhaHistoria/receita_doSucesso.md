@@ -15,4 +15,4 @@ Os 3 principais pilares da empresa serão:
 A minha maior meta como CEO dessa grande empresa e deixar uma marca no mundo mostrando ser possível, sim, alcançar o topo sendo correto, sendo humano, conquistar todos os desejos sem a necessidade de "engolir" ninguém.
 
 "_Que juntos tornamos o mundo um lugar melhor._"
-*Rafael Simião Pereira*, CEO (TWC)
+*Rafael Simião Pereira*, CEO --- TWC

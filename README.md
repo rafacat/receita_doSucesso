@@ -9,4 +9,3 @@
 - Quem é Rafael Simião Pereira?
 - Como surgiu a TWC?
 - Qual o motivo por trás de tudo isso?
-- Até onde a TWC alcansará?
